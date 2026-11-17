@@ -22,3 +22,4 @@ Shri Awasthi's association with the Rashtriya Swayamsevak Sangh (RSS) began at t
 - **फेसबुक:** [https://www.facebook.com/share/1dVobTN8st/)
 - **इंस्टाग्राम:** [https://www.instagram.com/anandawasthiadvocate?exln=MmxieGplc2hiZGls)
 > *"प्रभु श्री राम जी एवं संघ के स्वयंसेवक के रूप में जनता जनार्दन व पार्टी के विभिन्न कार्यक्रमों में निरंतर तत्पर रहना।"* 🙏
+- **Anand Awasthi**:** (https://sites.google.com/view/anand-awasthi-advocate/home)
