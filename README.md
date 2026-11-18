@@ -25,3 +25,5 @@ Shri Awasthi's association with the Rashtriya Swayamsevak Sangh (RSS) began at t
 - **Anand Awasthi**:** (https://sites.google.com/view/anand-awasthi-advocate/home)
 ### 🌐 Official Website & Social Profiles
 * **Official Website:** [Shri Anand Awasthi (Advocate) - Official Portal](https://sites.google.com/view/anand-awasthi-advocate/home)
+### 📝 Articles & Press Coverage
+* **Medium Publication:** [Anand Awasthi Advocate - Political & Social Journey](https://medium.com/@shaashwatproductions/anand-awasthi-advocate-6bfda4e2e134?sharedUserId=shaashwatproductions)
