@@ -1,3 +1,4 @@
+<img width="1142" height="1600" alt="WhatsApp Image 2026-11-18 at 1 43 57 PM" src="https://github.com/user-attachments/assets/6356ea27-bca6-42fa-b86f-8f26f7dd8a62" />
 # Shri Anand Awasthi (Advocate)
 > **State Working Committee Member, Uttar Pradesh (BJP)**  
 > **Assembly Constituency: 150-Seuta, Sitapur (U.P.)**
